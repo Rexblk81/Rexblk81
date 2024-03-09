@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rexblk81
-- 👀 I’m interested in helping people...web3 asset 
+- 👀 I’m interested in helping people...web3 asset web 5.0
 - 🌱 I’m currently learning web3 web4 transhumen ...
 - 💞️ I’m looking to collaborate on DrapaNet4 warrior...
 - 📫 How to reach me jonathanvasquez818181@gmail.com
